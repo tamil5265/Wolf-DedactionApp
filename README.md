@@ -19,7 +19,7 @@ Let **Wolf** be your trusted companion in staying alert and informed!
 
 ### 🔗 Connect With Us  
   
-[Linkedin](https://www.linkedin.com/in/sathishchandransql?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3ByGN%2BXSQ8QQKKDkws4wo%2FPQ%3D%3D)  
+[Linkedin](https://www.linkedin.com/in/tamil-selvan-383618304?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 
 ---  
 
